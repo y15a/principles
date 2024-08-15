@@ -39,4 +39,4 @@ Good health fuels goodwill.
 
 - **Fitness:** Exercise with discipline. Rest with equal discipline.
 - **Cleanliness:** Keep your body, clothes, and surroundings clean.
-- **Temperance:** Eat to sustain, not to dullness. Drink with moderation, not to excess.
+- **Temperance:** Eat to sustain, not to dullness. Do not drink alcohol.
